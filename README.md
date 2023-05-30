@@ -1,1 +1,1 @@
-# How Has Capitalism Shown Throughout The Modern World
+# How Does Capitalism Operate In The Modern World Analysis
