@@ -1,1 +1,1 @@
-# How Does Capitalism Operate In The Modern World Analysis
+# How Does Capitalism Operate In The Modern World
